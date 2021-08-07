@@ -22,7 +22,7 @@ These movies are my favorites: great episodes with nothing significantly objecti
 ## Good
 
 These episodes were fun to watch with the family, with nothing objectionable, but not quite
-as good as the ones above. It's my B-List.
+as good as the ones above.
 
 - Wizards of the Lost Kingdom
 - Master Ninja (1 and 2)
@@ -37,6 +37,7 @@ These episodes were just not very good. There's nothing that objectionable in th
 like them so much.
 
 - The Magic Sword
+- Wizards of the Lost Kingdom 2
 
 ## Not Recommended
 
